@@ -23,6 +23,8 @@ DOI: 10.3389/fmars.2020.00179
 ### What this means for the site narrative:
 The "A Última Miléporas Viva" video was filmed at this moment of collapse. The biobank initiative exists because *M. alcicornis* — the only branching coral in the South Atlantic — nearly disappeared from Corumbau in a single summer. Without genetic preservation, the next heatwave could mean permanent loss.
 
+**UPDATE (2025):** The corals at Corumbau are in recovery. This is the arc of the story — collapse (2019) → recovery (now) → protection for the future (Tanto Mar). The site should convey urgency AND hope.
+
 ---
 
 ## Supporting Paper — Regional Context
